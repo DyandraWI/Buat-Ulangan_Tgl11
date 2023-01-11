@@ -1,1 +1,1 @@
-Buat ulangan, Hari Rabu Tgl 11
+Buat Ulangan, Rabu Tgl11
